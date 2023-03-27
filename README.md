@@ -6,3 +6,11 @@ Vento é um jogo indie e puzzle, um jogo para transceder no mundo desde personag
 
 Milie precisa de ajuda, você pode ser a esperança ? 
 
+_________________________________________________________________________________________________________________________________________________________________________
+
+Personagens 
+
+Milie
+Bruxa 
+besta
+bichinho da bruxa
